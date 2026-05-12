@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with osmosis trading bot automatic Automation | liquidity-provision & fee-optimization, the #1 osmosis trading bot. Includes liquidity-provision and
 
 
 
